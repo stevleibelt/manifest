@@ -8,6 +8,8 @@ You have to:
 
 Maxim:
 * information and knowledge have to be free for all
+* we are all light and love
+* do not be jealousy against others
 
 Based on:
 * http://ccc.de/de/hackerethik
