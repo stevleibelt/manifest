@@ -16,3 +16,9 @@ es gibt nur Training.
 ```
 Unter Blinden ist der Einäugige König.
 ```
+
+# Ein alter Mann aus Schlesien der den zweiten Weltkrieg erlebt hat (und sein Vater schon den ersten Weltkrieg)
+
+```
+Immer wenn Berlin im deutschen Völkerbund ausgebaut wurde und damit an Bedeutung gewann, hatte das Volk und die Welt wenige Jahre danach darunter zu leiden.
+```
