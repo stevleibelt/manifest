@@ -22,3 +22,9 @@ Unter Blinden ist der Einäugige König.
 ```
 Immer wenn Berlin im deutschen Völkerbund ausgebaut wurde und damit an Bedeutung gewann, hatte das Volk und die Welt wenige Jahre danach darunter zu leiden.
 ```
+
+# By Myself
+
+```
+[http://www.nie-wieder-krieg.org/](Nie wieder Krieg, nirgends!)
+```
